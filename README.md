@@ -1,4 +1,4 @@
-### bananenschorle
+### Bananensaftschorle
 
 | VN | DE   |
 | ---- | --------- | 
